@@ -1,3 +1,3 @@
 Invite Link : https://nqn.blue/ <br>
-Emoji Pack : https://nqn.blue/packs
-haha
+Emoji Pack : https://nqn.blue/packs <br>
+hahafr 
