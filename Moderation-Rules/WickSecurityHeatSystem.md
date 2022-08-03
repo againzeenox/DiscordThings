@@ -2,7 +2,7 @@
 
 ****Our Moderation rules(A big list):****
 
-> ***HEAT SYSTEM***
+> ***HEAT SYSTEMvvfvf***
 
 > If a Member reaches `100`% heat, He will be punished by @Wick#3938 .
 > 
